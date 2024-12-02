@@ -1,5 +1,5 @@
 # MeritKing 🎯  
-<img src="https://i.hizliresim.com/mt023fa.png" alt="MeritKing Resim" style="max-width: 100%;">  
+<a href="https://t.me/+lr-TNRFBi05kOTQ6" title="ResimLink - Resim Yükle" rel="nofollow"><img src="https://i.hizliresim.com/mt023fa.png" title="ResimLink - Resim Yükle" alt="ResimLink - Resim Yükle" data-canonical-src="https://i.hizliresim.com/mt023fa.png" style="max-width: 100%;"></a>
 
 Kazanç ve eğlence dünyasına hoş geldiniz! **MeritKing**, yüksek bahis oranları ve zengin oyun seçenekleriyle kullanıcılarına eşsiz bir deneyim sunuyor. Hemen katılın ve kazanmaya başlayın!  
 
@@ -11,6 +11,6 @@ Kazanç ve eğlence dünyasına hoş geldiniz! **MeritKing**, yüksek bahis oran
 - **Hızlı Ödemeler:** Güvenilir ve kesintisiz işlem deneyimi.  
 
 ## MeritKing’e Katılmak Çok Kolay!  
-[Buradan MeritKing’e ulaşarak hemen üye olun.](https://t.me/+tgpiwOSMtStjYzM0)  
+[Buradan MeritKing’e ulaşarak hemen üye olun.](https://t.me/+lr-TNRFBi05kOTQ6)  
 
 Kazanmak için daha fazla beklemeyin! MeritKing ile hem eğlenin hem de kazancınızı artırın.
